@@ -1,6 +1,4 @@
-# lyrics_of_dance_monkey_but_different_pt_2_of_13
-*Pt. 2/13 of my Dance Monkey Lyrics Project. there is nothing important here to see or to request.*
-
+# Dance Monkey Pt. 2/13
 <br>
 <br>
 
